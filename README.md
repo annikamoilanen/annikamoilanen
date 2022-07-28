@@ -7,5 +7,5 @@
 - ㍐ Ask me about flying or traveling
 - ❥ How to reach me: Slack, Teams, e-mail or f2f
 - ☛ Projects: MyBid, SkyGuest 2.0, GroundGuest, SkyPay
-- ⋆ Fun fact: I am a flight attendant, Instructor at Finnair Flight Academy and a codergirl who loves to design
-→ let's collaborate, would love to learn from the professionals at Finnair! 
+- ✨ Fun fact: I am a flight attendant, Instructor at Finnair Flight Academy and a codergirl who loves to design
+- → let's collaborate, would love to learn from the professionals at Finnair! 
